@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KIYOMI769
 - 👀 I’m interested in ...animes discord servidores bot de música etc
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ...A fazer servidores do fiscord
+- 💞️ I’m looking to collaborate on ...n sei
 - 📫 How to reach me ...
 
 <!---
